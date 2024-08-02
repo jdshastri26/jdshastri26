@@ -4,7 +4,7 @@ I am interested in protein engineering
 - 💞️ I’m looking to collaborate on antibody
 - 📫 How to reach me ... jdshastri075@gmail.com
 - 😄 Pronouns: ...He/him
-- ⚡ Fun fact: ... life began with chemical reaction. 
+- ⚡ Fun fact: ... life began with a chemical reaction. 
 
 <!---
 jdshastri26/jdshastri26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
