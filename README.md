@@ -1,7 +1,7 @@
 Hi am @jdshastri26
 I am interested in protein engineering
 - 🌱 I’m currently learning a lot... 
-- 💞️ I’m looking to collaborate on antibody
+- 💞️ I’m looking to collaborate on antibody conjugate drugs
 - 📫 How to reach me ... jdshastri075@gmail.com
 - 😄 Pronouns: ...He/him
 - ⚡ Fun fact: ... life began with a chemical reaction. 
